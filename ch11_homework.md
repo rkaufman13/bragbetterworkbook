@@ -1,0 +1,38 @@
+# Campaign of You Action List
+
+- Revise your resume.
+	- Accurately list your previous work history.
+	- Describe what you did with positive, strong language. 
+	- List your awards and accomplishments.
+- Revise or write your bios. 
+	- Create a long, short, and two-line bio.(The long bio is one page, including everything; the short bio is paragraph; and the two-line bio is two sentences.)
+	- Remove hobbies, playful references, and creative titles.
+	- Include hyperlinks. 
+	- Don't use weak verbs or passive voice. 
+	- Use your last name, not your first. 
+	- Include calls to action. 
+- Buy the domain of your name. (Grab all matching social media handles, even ones you don't think you'll use.) 
+- Build a basic website using an easy-to-use platform. 
+- Check your Google search results, and record what comes up on the first three pages. 
+- Set a Google alert for your name. 
+- Create a you@yourname.com email address. Review your email signature. (Make sure that it has the proper contact information.) •
+- Choose three different types of people or audiences and craft an introduction for yourself for each. 
+- Practice introducing yourself to someone above you. 
+- Practice introducing yourself to a coworker friend. 
+- Craft a pitch document for yourself (This pitch document will contain three to four angles for your story and Campaign of You. Begin with a central and more general pitch. Then break it down into three or four different audiences.)
+	- Write your pitch for a potential journalist or writer. 
+	- Write your pitch for a conference or TV booker.
+	- Write your pitch for a potential client.
+	- Write your pitch for someone you admire.
+- Make sure your headshots are up-to-date.
+	- Get a new headshot every year, and more often if you change your appearance.
+	- Use the same headshot everywhere.
+- Get new business cards or order more.
+- Make a list of dream panels and places you want to speak. 
+	- Organize them by the time of year if they happen annually.
+	- Begin drafting your pitches to conference organizers or bookers, and figure out their contact information.
+	- Gather clips for your speaker reel, if you have them. Make one for speaking gigs and one for television appearances. Include the highlights of your public appearances to serve as the ultimate quick brag—a reel shouldn't be more than a few minutes long.
+	- Make it clear you want to get booked by explicitly telling people on your personal site, social media, or email signature. (you can also create a separate email, like speaking@yourname.com.)
+- Bonus Points: Write your core speech.
+	- Create a twenty-minute version.
+	- Create a forty-minute version. 
